@@ -10,7 +10,7 @@ Food is coming, but you might have to wait a little. Apparently people go out to
 ![Dinner](http://media.culturemap.com/crop/85/ac/633x475/Couple-on-a-date_113913.jpg)
 
 
-### I hope you had a Valentines so far Kristen!
+### I hope you had a great Valentines so far Kristen!
 
 I'll see you soon!
 
